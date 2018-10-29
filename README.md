@@ -1,2 +1,2 @@
 # sky1ander
-i`m new to this coding world,thansk for your help :)
+I`m new to this coding world,thanks for your help :)
